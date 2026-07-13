@@ -3,7 +3,7 @@
 <img src="https://files.catbox.moe/nvlcz4.webp" width="250" align="right">
 
 
- 　 　　${\textsf{\color{#B26B69} ꠴ }}$　 ${\textsf{\color{#f5faf0} gabriel }}$　 ${\textsf{\color{#B26B69} or }}$　 ${\textsf{\color{#f5faf0} tenna }}$
+ 　 　　 ${\textsf{\color{#B26B69} ꠴ }}$　 ${\textsf{\color{#f5faf0} gabriel }}$　 ${\textsf{\color{#B26B69} or }}$　 ${\textsf{\color{#f5faf0} tenna }}$
  
    　　　　　　　c*h　　 ${\textsf{\color{#525C6B} w2i }}$⠀　 ${\textsf{\color{#617453} iwc }}$
     
