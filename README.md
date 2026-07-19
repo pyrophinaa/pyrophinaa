@@ -7,6 +7,6 @@
  
    　　　　　　c*h　　 ${\textsf{\color{#525C6B} w2i }}$⠀　 ${\textsf{\color{#617453} iwc }}$
     
-　　৻　 ![](https://files.catbox.moe/avppb6.webp)　[_strawpage_](https://mrtennastv.straw.page/)　[_atabook_](https://pyrophina.atabook.org/)　![](https://files.catbox.moe/r0qhua.webp)　৴
+　　৻　 ![](https://files.catbox.moe/avppb6.webp)　[_prns.page_](https://en.pronouns.page/@cardi)　[_atabook_](https://pyrophina.atabook.org/)　![](https://files.catbox.moe/r0qhua.webp)　৴
 
   ![](https://files.catbox.moe/apolue.png) ![](https://files.catbox.moe/em3kjq.png) ![](https://files.catbox.moe/xvcj1c.webp)
